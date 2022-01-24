@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Laurakhielll
 - 👀 I’m interested in learning new things such as how to operate the business 
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning how to start my own business
 - 💞️ I’m looking to collaborate on business (products that is currently trending) 
 - 📫 How to reach me 
 Instagram : @laxxra.86
